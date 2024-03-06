@@ -1,4 +1,22 @@
 # Sebas-y-Jordan
-
 solo desarrollo de software mi papaaaa
-sebastian cardona 
+sebastian cardona
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+nelson estetic
+
